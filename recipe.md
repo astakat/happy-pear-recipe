@@ -1,3 +1,19 @@
+# **Ingredients:**
+
+2 litre veg stock
+5.5 tbsp tamari
+thumb-sized piece of freshly grated ginger
+juice of 2 limes
+2 tbsp maple syrup
+200 g of rice noodles or wholewheat noodles 4 nests of portioned out noodles
+300 g oyster mushrooms
+3 tbsp water
+Toppings:
+1 red chilli
+4 scallions
+1 large carrot
+200 g most of 1 pack of bean sprouts
+
 # **Instructions:**
 
 To prepare the broth, first put the veg stock and 2.5 tbsp tamari together with the grated ginger, the juice of 1 lime and 1 tbsp of maple syrup into a suitable sized pan and bring to the boil.
